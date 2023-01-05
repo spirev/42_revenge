@@ -1,1 +1,1 @@
-A simple sour taste I had to get off of me.
+Simply a sour taste I had to get off of my life.
